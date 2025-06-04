@@ -22,5 +22,5 @@
 
 ## 📫 Let's Connect
 
-- [LinkedIn](https:www.linkedin.com/in/johnathon-richardson-65619a26a)
+- [LinkedIn](https://www.linkedin.com/in/johnathon-richardson-65619a26a/)
 - [Email](mailto:Johnathon2Rich@gmail.com)
